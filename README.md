@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @Vals22
+- I'm interested in the web profession, but I don't know anything about it. I am learning it little by little...
+- 🌱 I’m currently learning at Sayna.
